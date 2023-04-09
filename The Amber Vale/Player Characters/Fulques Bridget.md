@@ -23,7 +23,7 @@ All these qualities lead to a close bond with his party members. Fulques is seem
 
 
 
-![[Pasted image 20230310003416.png]] 
+
 
 
 
